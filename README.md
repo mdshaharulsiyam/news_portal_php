@@ -1,1 +1,1 @@
-[live-link](http://mdshaharulsiyam.wuaze.com/  "live-link")
+[live-link](http://mdshaharulsiyam.wuaze.com/news-template/  "live-link")
